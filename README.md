@@ -1,0 +1,2 @@
+# kudos
+KUDOS Coin (BSC)
